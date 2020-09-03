@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 👋
 
 <img align="right" alt="GIF" src="https://thumbs.gfycat.com/SoupyOilyGraywolf-size_restricted.gif" />
 
